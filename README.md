@@ -1,0 +1,4 @@
+- 👋 Oi, eu sou o Miguel 
+- - 👀 Eu me interesso em jogos, esportes etc
+- 🌱 Eu frequentemente jogo video-game 
+- pra falar comigo use o email de: miguel.abrao@escola.pr.gov.br
